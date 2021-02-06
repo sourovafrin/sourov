@@ -5,4 +5,4 @@ You can download twitter video on chrome with this tool or from any other browse
 
 ## How fast and reliable is it?
 
-The site so s
+The site so smooth and fast. It shows you the result with in a second.
